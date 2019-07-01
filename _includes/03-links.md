@@ -1,1 +1,1 @@
-https://github.com/ghost6-2
+[Profile](https://github.com/ghost6-2)
